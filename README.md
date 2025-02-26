@@ -1,16 +1,22 @@
-## Hi there 👋
+## ***YAHALLO :333***
 
-<!--
-**RiveiESTB/RiveiESTB** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+My Name is **Nathan Maverick S. Santos** but please do call me *RIVEI*
+I live in *Las Piñas City*
 
-Here are some ideas to get you started:
+I am **EX** *Professional Player* for ***Smart OMEGA*** ( MLBB )
+***also I tutor pipolz in some variety of games :DDD***
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Things I love to do
+- Eat > Sleep > **PLAY**
+
+Things that I play :
+- MLBB ( Licensed as Professional :D )
+- League of Legends
+- Dota 
+
+Programming Languages that I am willing to learn are...
+
+♥ Java
+♥ C++
+
+## *me luv riri ^^*
