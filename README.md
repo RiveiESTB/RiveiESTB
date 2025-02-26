@@ -1,6 +1,7 @@
 ## ***YAHALLO :333***
 
-My Name is **Nathan Maverick S. Santos** but please do call me *RIVEI*
+My Name is **Nathan Maverick S. Santos** but please do call me ***Rivei***
+
 I live in *Las Piñas City*
 
 I am **EX** *Professional Player* for ***Smart OMEGA*** ( MLBB )
