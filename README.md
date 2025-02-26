@@ -20,4 +20,7 @@ Programming Languages that I am willing to learn are...
 
 ♥ C++
 
+### Connect w/ me!! ♥
+Facebook : https://www.facebook.com/Doc.Ririzxc/
+
 ## *me luv riri ^^*
